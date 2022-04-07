@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hailanaja29
+- 👀 I’m interested in spicy food 🌶🥡🔥
+- 🌱 I’m currently learning about goverment
